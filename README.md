@@ -6,7 +6,7 @@ I’m currently working on nothing because I want to see some new projects to ma
 
 I’m currently learning some electric and electronic courses.
 
-I like to play genshin and if I have the time, OW, main Mercy but actually trying to play others Heroes like Ana, Mizuki, Anran.
+I like to play Genshin and if I have the time, OW, main Mercy but actually trying to play others Heroes like Ana, Mizuki, Anran.
 
 And that's all cause I want to stay understated
 
